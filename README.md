@@ -3,7 +3,7 @@
 🤖🧟‍♀️
 - Sou auluna de  Matemática, Física e Pensamento Computacional  
 - Atualmente sou aluna em Pensamento Computacional
-- Estudo no Colégio Estadual do Campo Cerrado das Cinzas
+- Estudo no Colégio Estadual do Campo Cerrado das Cinzass2
 - sou fã The walking Dead
 - gosto de aventuras
 - 16y🤹‍♀️
