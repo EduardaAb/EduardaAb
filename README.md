@@ -6,7 +6,7 @@
 - Estudo no Colégio Estadual do Campo Cerrado das Cinzas
 - sou fã The walking Dead
 - gosto de aventuras
-- 16y
+- 16y🤹‍♀️
 - arapoti/PR📍
 
 - ### Estou aprendendo...
